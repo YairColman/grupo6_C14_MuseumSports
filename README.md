@@ -17,3 +17,11 @@ https://www.vandalia.com.ar/
 https://www.retrofootball.es/
 
 Estas 5 páginas presentan una buena estética. Las que venden artículos deportivos comunes, presentan una buena gama de colores, y las que venden artículos retro, la usamos de referencia para ver como poder presentar los productos de manera amigable para el usuario. 
+
+
+
+Descripción de los integrantes del equipo: 
+
+Somos apasionados del deporte y su historia, desde lo individual a lo colectivo. Estamos seguros de que el deporte une al mundo, rompe con las visiones politicas y religiosas.
+
+Esa magia nos inspira en crear una pagina que no solo logre dar a conocer un suceso o un hecho deportivo histórico, sino, además, darle a cada persona un pedazo de la historia, un recuerdo imborrable y memorable que siga manteniendo con vida dicho recuerdo.
