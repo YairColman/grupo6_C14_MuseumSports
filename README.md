@@ -12,3 +12,8 @@ Paginas de referencia:
 
 www.mundialretrocamisetas.com.ar
 www.camisetadefutbol.com
+https://abcdeportesonline.com.ar
+https://www.vandalia.com.ar/
+https://www.retrofootball.es/
+
+Estas 5 páginas presentan una buena estética. Las que venden artículos deportivos comunes, presentan una buena gama de colores, y las que venden artículos retro, la usamos de referencia para ver como poder presentar los productos de manera amigable para el usuario. 
