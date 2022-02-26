@@ -8,3 +8,6 @@ Si eres amante del deporte, los autógrafos y de las piezas de colección, segur
 
 Todos los productos vienen con su certificado de autenticidad que valida que dicha pieza es la original y no una réplica.
 
+Paginas de referencia:
+
+www.mundialretrocamisetas.com.ar
