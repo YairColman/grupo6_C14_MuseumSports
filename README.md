@@ -10,8 +10,8 @@ Todos los productos vienen con su certificado de autenticidad que valida que dic
 
 Paginas de referencia:
 
-www.mundialretrocamisetas.com.ar
-www.camisetadefutbol.com
+http://www.mundialretrocamisetas.com.ar
+http://www.camisetadefutbol.com
 https://abcdeportesonline.com.ar
 https://www.vandalia.com.ar/
 https://www.retrofootball.es/
