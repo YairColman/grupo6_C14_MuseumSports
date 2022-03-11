@@ -11,10 +11,25 @@ Todos los productos vienen con su certificado de autenticidad que valida que dic
 Paginas de referencia:
 
 http://www.mundialretrocamisetas.com.ar
+
+Nos inspiramos en esta pagina para hacer el detalle de producto y la seccion de productos relacionados, nos gusto como se muestrn los articulo sin bordes remarcados ademas de mostrar imagenes del deportista al momento de usarla.
+
 http://www.camisetadefutbol.com
+
+De esta pagina sacamos el diseño del home en general y el diseño de botones en la parte superior para elegir los deportes.
+
 https://abcdeportesonline.com.ar
-https://www.vandalia.com.ar/
+
+Nos inspiramos en esta pagina para el diseño del header.
+
+http://mercadolibre.com
+Nos inspiramos en esta pagina para para hacer el carrito de compras.
+
 https://www.retrofootball.es/
+
+Nos inspiramos en esta pagina para sacar la descripcion de articulos a la venta
+Ademas de usar el diseño del footer.
+
 
 Estas 5 páginas presentan una buena estética. Las que venden artículos deportivos comunes, presentan una buena gama de colores, y las que venden artículos retro, la usamos de referencia para ver como poder presentar los productos de manera amigable para el usuario. 
 
