@@ -37,6 +37,6 @@ Estas 5 páginas presentan una buena estética. Las que venden artículos deport
 
 Descripción de los integrantes del equipo: 
 
-Somos apasionados del deporte y su historia, desde lo individual a lo colectivo. Estamos seguros de que el deporte une al mundo, rompe con las visiones politicas y religiosas.
+Somos apasionados del deporte y su historia, desde lo individual a lo colectivo. Estamos seguros de que el deporte une a todo el mundo, rompe con las visiones politicas y religiosas.
 
 Esa magia nos inspira en crear una pagina que no solo logre dar a conocer un suceso o un hecho deportivo histórico, sino, además, darle a cada persona un pedazo de la historia, un recuerdo imborrable y memorable que siga manteniendo con vida dicho recuerdo.
